@@ -153,35 +153,82 @@ Roimata, she is here to make your day lighter and your work stronger. Use her we
 
 ---
 
-## Short version (about two minutes)
+## Short version (about two and a half minutes)
 
-Use this if the whakatau is brief or the hosts keep their side short.
+This one stands on its own. Tauparapara and īnoi in full, then a tight mihi, then the hand-over.
 
-> Whakataka te hau ki te uru, whakataka te hau ki te tonga.
-> Kia mākinakina ki uta, kia mātaratara ki tai.
-> E hī ake ana te atakura, he tio, he huka, he hau hū.
+### Tauparapara
+
+> Whakataka te hau ki te uru,
+> whakataka te hau ki te tonga.
+> Kia mākinakina ki uta,
+> kia mātaratara ki tai.
+> E hī ake ana te atakura,
+> he tio, he huka, he hau hū.
 > Tīhei mauri ora!
+
+### Īnoi
+
+> E te Matua nui i te rangi, tēnā koe.
+> Kia tau iho ngā manaakitanga ki runga ki tēnā, ki tēnā o tātou.
+> Ka īnoi tātou i runga i te Matua, i te Tama, i te Wairua Tapu,
+> ki ngā Anahera Tapu, ki te Māngai tautoko,
+> āianei, ake nei. Āe.
+
+### Mihi
+
+> E Mauao, e tū mai nā, tēnā koe.
+> E Te Awanui, e Tauranga Moana, tēnā koe.
+> Rātou kua wheturangitia, haere, haere, haere atu rā.
+> Tātou te hunga ora, tēnā tātou.
 >
-> E te Matua nui i te rangi, kia tau iho ngā manaakitanga ki runga ki tēnā, ki tēnā o tātou.
-> Ka īnoi tātou i runga i te Matua, i te Tama, i te Wairua Tapu, ki ngā Anahera Tapu, ki te Māngai tautoko, āianei, ake nei. Āe.
+> E Ngāi Te Rangi, e ngā uri o Te Rangihouhiri,
+> e Roimata, e ngā kaimahi o te rūnanga,
+> tēnā koutou i tō koutou karanga, i tō koutou manaaki i tēnei ata.
 >
-> E Mauao, e Te Awanui, tēnā kōrua. Rātou kua wheturangitia, haere, haere, haere atu rā. Tātou te hunga ora, tēnā tātou.
+> Ko Aotea te waka, ko Taranaki te maunga,
+> ko Ngā Rauru, ko Ngāti Ruanui, ko Te Pakakohi ngā iwi.
+> Ko Charles Russell ahau. Ko te pāpā ahau o Nova.
 >
-> E Ngāi Te Rangi, e Roimata, e ngā kaimahi, tēnā koutou i tō koutou manaaki i tēnei ata.
->
-> Ko Aotea te waka, ko Taranaki te maunga, ko Ngā Rauru, ko Ngāti Ruanui, ko Te Pakakohi ngā iwi.
-> Ko Charles Russell ahau, ko te pāpā o Nova.
 > I tōna pāpā, nō Aotea, nō Taranaki ia.
-> I tōna māmā, i tōna koroua, nō Ngāi Te Rangi ia, nō Rangiwaea, nō Matakana.
-> He Paki tōna koroua i tōna whānautanga, i whāngaitia ia e te whānau Tairi o Maungatautari, nō Ngāti Korokī Kahukura, nō Tainui waka.
-> Kua hoki mai te mokopuna ki te kāinga.
+> I tōna māmā, i tōna koroua, nō Ngāi Te Rangi ia,
+> nō Rangiwaea, nō Matakana, ngā moutere e tū mai rā i tua atu o te wai.
+> He Paki tōna koroua i tōna whānautanga,
+> i whāngaitia ia e te whānau Tairi o Maungatautari,
+> nō Ngāti Korokī Kahukura, nō Tainui waka.
+> Nō reira, ehara ia i te manuhiri. Kua hoki mai te mokopuna ki te kāinga.
 
-Roimata, Ngāi Te Rangi, today I am just a father. I bring you my daughter Nova. She is hard working, loyal and discreet, and she has been raised to serve. She is also young and still learning. So I ask you: manaakitia ia, akona ia, and where she gets it wrong, whakatikaina ia. In return you have her best.
+*(Mauao, Te Awanui, greetings. Farewell to those who have passed; greetings to us the living. Ngāi Te Rangi, descendants of Te Rangihouhiri, Roimata, the staff of the rūnanga, thank you for your call and your care this morning. I am of Aotea and Taranaki. I am Charles Russell, Nova's father. Through me she is Aotea and Taranaki. Through her mother and her koro she is Ngāi Te Rangi, of Rangiwaea and Matakana, the islands across the water. Her koro was born a Paki and raised by the Tairi whānau of Maungatautari, Ngāti Korokī Kahukura, of Tainui waka. So she is no visitor. The mokopuna has come home.)*
 
-Hutia te rito o te harakeke, kei hea te kōmako e kō? Today I plant a rito in your harakeke. She is yours now to shelter and to shape.
+### The hand-over
 
-> Nō reira, kei a koutou tāku tamāhine. Tiakina ia, poipoia ia.
+Roimata, Ngāi Te Rangi, thank you for the welcome you have given our whānau.
+
+Today I am not here for Mātai Pacific. Today I am a father.
+
+I was born in Tauranga Moana, and it means a great deal to me that my eldest daughter starts this chapter here, at the foot of Mauao, within sight of her koro's islands, with the iwi of her mother.
+
+Let me tell you what you are getting. Nova is hard working, she is loyal, and she is discreet. An Executive Assistant holds the door and holds the confidence, and she understands both. She was raised to serve, and she was raised to treat the person at the front desk and the person in the chair's seat with the same care.
+
+She is also young, and still learning. So I ask three things of you.
+
+Manaakitia ia. Look after her.
+Akona ia. Teach her how this iwi does things.
+And where she gets it wrong, whakatikaina ia. Correct her. She will be better for it.
+
+In return, you have her best. Her loyalty, her effort, and her care for the people beside her.
+
+Hutia te rito o te harakeke, kei hea te kōmako e kō? Today I plant a rito in your harakeke. The outer leaves protect it and let it grow. She is yours now, to shelter and to shape.
+
+### Whakamutunga
+
+> Nō reira, e Roimata, e Ngāi Te Rangi,
+> kei a koutou tāku tamāhine.
+> Tiakina ia, poipoia ia, whakatikaina ia ina hē.
+> Nāku te rito, nā koutou te harakeke, mā tātou katoa e whakatipu.
 > Tēnā koutou, tēnā koutou, tēnā tātou katoa.
+
+**Then the waiata.**
 
 ---
 
