@@ -93,3 +93,71 @@ Hutia te rito o te harakeke, kei hea te kōmako e kō? Today I bring a rito to y
 - **Spelling.** Confirm "Tairi".
 - **Waiata.** "Purea Nei" suits a new beginning. A Taranaki waiata the whānau knows well is the stronger choice, as it reflects your side of the house.
 - **Order.** Tangata whenua speak first. You reply. Nova does not need to speak unless invited. After the hongi she stays on the hosts' side; she belongs to them from that point.
+
+---
+
+# Te reo Māori anake (simple version)
+
+> Whakataka te hau ki te uru,
+> whakataka te hau ki te tonga.
+> Kia mākinakina ki uta,
+> kia mātaratara ki tai.
+> E hī ake ana te atakura,
+> he tio, he huka, he hau hū.
+> Tīhei mauri ora!
+>
+> E te Matua nui i te rangi, tēnā koe.
+> Kia tau iho ngā manaakitanga ki runga ki tēnā, ki tēnā o tātou.
+> Ka īnoi tātou i runga i te Matua, i te Tama, i te Wairua Tapu,
+> ki ngā Anahera Tapu, ki te Māngai tautoko,
+> āianei, ake nei. Āe.
+>
+> E Mauao, tēnā koe.
+> E Te Awanui, e Tauranga Moana, tēnā koe.
+> Rātou kua wheturangitia, haere, haere, haere atu rā.
+> Tātou te hunga ora, tēnā tātou.
+>
+> E te tangata whenua, e Ngāi Te Rangi,
+> e Roimata, e ngā kaimahi o te rūnanga, tēnā koutou.
+> He manuhiri mātou i tēnei rā.
+> Tēnā koutou mō tā koutou manaaki i a mātou.
+>
+> Ko Aotea te waka, ko Taranaki te maunga,
+> ko Ngā Rauru, ko Ngāti Ruanui, ko Te Pakakohi ngā iwi.
+> Ko Charles Russell ahau. Ko te pāpā ahau o Nova.
+>
+> I tōna pāpā, nō Aotea, nō Taranaki ia.
+> I tōna māmā, i tōna koroua, he hononga ōna ki a Ngāi Te Rangi,
+> ki Rangiwaea, ki Matakana.
+> He Paki tōna koroua i tōna whānautanga.
+> I whāngaitia ia e te whānau Tairi o Maungatautari,
+> nō Ngāti Korokī Kahukura, nō Tainui waka.
+>
+> I tēnei rā, ehara au i te Manahautū o Mātai Pacific.
+> He pāpā noa iho ahau.
+> I whānau mai au ki Tauranga Moana.
+> Nō reira, he mea nui ki ahau kia tīmata tāku tamāhine mātāmua i konei,
+> i raro i a Mauao, i te tirohanga atu ki ngā moutere o tōna koroua.
+>
+> He kaha a Nova ki te mahi. He pono ia.
+> He pai ia ki te pupuri i ngā kōrero.
+> I whakatipuria ia ki te mahi mō te tangata, ki te manaaki i te katoa.
+>
+> He taitamariki tonu ia. Kei te ako tonu ia.
+> Nō reira, e toru aku tono ki a koutou.
+> Manaakitia ia.
+> Akona ia ki ngā tikanga o tēnei iwi.
+> Ina hē ia, whakatikaina ia.
+>
+> Hei utu, ka hoatu e ia tōna kaha, tōna pono, me tōna aroha
+> ki ngā tāngata e mahi tahi ana ia.
+>
+> Hutia te rito o te harakeke, kei hea te kōmako e kō?
+> I tēnei rā, ka kawea mai e au he rito ki tō koutou harakeke.
+> Kei a koutou ia ināianei, hei tiaki, hei whakatipu.
+>
+> Nō reira, e te tangata whenua, e Roimata, e Ngāi Te Rangi,
+> kei a koutou tāku tamāhine.
+> Tiakina ia, poipoia ia, whakatikaina ia ina hē.
+> Nāku te rito, nā koutou te harakeke, mā tātou katoa e whakatipu.
+> Tēnā koutou, tēnā koutou, tēnā tātou katoa.
