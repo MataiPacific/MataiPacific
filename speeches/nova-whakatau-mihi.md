@@ -1,26 +1,14 @@
 # Whakatau mō Nova Russell
 
 **Te Rūnanga o Ngāi Te Rangi Iwi Trust, Mount Maunganui**
-**Kaiāwhina Matua (Executive Assistant) ki te Tumuaki Tuarua, Roimata Ah Sam**
-**Kaikōrero: Charles Russell (pāpā)**
+**Executive Assistant to Roimata Ah Sam, Deputy Chief Executive**
+**Kaikōrero: Charles Russell (pāpā), speaking for the manuhiri**
+
+About two and a half minutes. Ngāi Te Rangi are tangata whenua. We arrive as manuhiri, acknowledge that plainly, and ask them to receive Nova. Her whakapapa to Rangiwaea and Matakana is spoken, but it is theirs to recognise, not ours to claim.
 
 ---
 
-## Before you speak: three things to confirm
-
-The whakapapa below is drawn from your own writing (your pepeha in the Mātai Pacific 2024 annual report, now in section 6) and from what you told me about Nova's mother. Fill or check these before tomorrow:
-
-1. **The hapū of Rangiwaea and Matakana.** Nova's koro's islands are named in section 7. I have added Ngāi Tūwhiwhia and Ngāti Tauaiti in square brackets as the hapū of those islands. That is my understanding, not something from your files, so confirm it with Nova's mother or drop the bracketed line and let the island names carry it. If the whānau has a marae (Rangiwaea, Ōpureora or Kutaroa) say that too.
-2. **The whāngai line.** Section 7 names the koro as born Paki and raised by the Tairi whānau of Maungatautari, Ngāti Korokī Kahukura. Check the spelling of Tairi and whether the whānau would want the Paki name spoken aloud. Some whānau hold the birth name quietly. If so, keep only the Tairi line.
-3. **Who is in the room.** I have named Roimata Ah Sam as Deputy Chief Executive, which is confirmed by Nova's employment agreement. Paora Stanley is named as Chief Executive from a 2022 article only. Check who will actually stand for the iwi and adjust the names.
-
-Also decide your waiata before you go. Suggestions at the end.
-
----
-
-## Te mihi (full version, about four minutes)
-
-### 1. Tauparapara: Whakataka te hau
+## Tauparapara
 
 > Whakataka te hau ki te uru,
 > whakataka te hau ki te tonga.
@@ -30,9 +18,7 @@ Also decide your waiata before you go. Suggestions at the end.
 > he tio, he huka, he hau hū.
 > Tīhei mauri ora!
 
-*(Cease the winds from the west, cease the winds from the south. Let the breeze blow over the land, let the breeze blow over the sea. Let the red-tipped dawn come with a sharpened air, a touch of frost, a promise of a glorious day.)*
-
-### 2. Te īnoi ki te Matua nui i te rangi
+## Īnoi
 
 > E te Matua nui i te rangi, tēnā koe.
 > Kia tau iho ngā manaakitanga ki runga ki tēnā, ki tēnā o tātou.
@@ -40,173 +26,41 @@ Also decide your waiata before you go. Suggestions at the end.
 > ki ngā Anahera Tapu, ki te Māngai tautoko,
 > āianei, ake nei. Āe.
 
-*(Father in heaven, greetings. Let blessings descend on each and every one of us. We pray in the Father, the Son, the Holy Spirit, the Holy Angels and the Māngai who supports us, now and forever. Amen.)*
-
-### 3. Ki te whenua, ki te whare
-
-> E Mauao, e tū whakahirahira mai nā, tēnā koe.
-> E Te Awanui, e Tauranga Moana, e rere nei, e papaki nei, tēnā koe.
-> E ngā waka o Mātaatua, o Takitimu, i ū mai ki tēnei tai, tēnā koutou.
-> Ki te whare e tū nei, ki te papa e takoto nei, tēnā kōrua.
-
-*(To Mauao standing proud, to Te Awanui and Tauranga Moana, to the waka Mātaatua and Takitimu that landed on this coast, and to this house and the ground it stands on: greetings.)*
-
-### 4. Ki ngā mate
-
-> Rātou kua wheturangitia, rātou kua whetūrangihia ki te pō,
-> ngā rangatira o Ngāi Te Rangi, ngā rangatira o Taranaki, ō mātou tūpuna katoa,
-> haere, haere, haere atu rā.
-> Rātou ki a rātou, tātou te hunga ora ki a tātou.
-> Tēnā tātou.
-
-*(To those who have passed, the chiefs of Ngāi Te Rangi, the chiefs of Taranaki, all our ancestors: farewell. The dead to the dead, the living to the living.)*
-
-### 5. Ki te tangata whenua
-
-> E Ngāi Te Rangi, e ngā uri o Te Rangihouhiri, e te iwi, e te rūnanga, tēnā koutou.
-> Ngā kaumātua, ngā kuia, tēnā koutou.
-> [E Paora, e te Tumu Whakarae, tēnā koe.]
-> E Roimata, e te Tumuaki Tuarua, tēnā koe.
-> E ngā kaimahi o te rūnanga, tēnā koutou katoa.
->
-> Tēnā koutou i tō koutou karanga, i tō koutou mihi, i tō koutou manaaki i tēnei ata.
-> Ka nui te mihi ki a koutou.
-
-*(Ngāi Te Rangi, descendants of Te Rangihouhiri, the iwi and the rūnanga, the elders, [Paora as Chief Executive,] Roimata as Deputy Chief Executive, and all the staff: thank you for your call, your welcome and your hospitality this morning.)*
-
-### 6. Ko wai mātou
-
-> Ko Aotea te waka, ko Turi Ariki te tangata, nāna i hoe te Moana-nui-a-Kiwa.
-> Ko Rangitāwhi te one i ū ai.
-> Ko Taranaki te maunga titohea.
-> Ko Ngā Rauru, ko Ngāti Ruanui, ko Te Pakakohi ngā iwi.
-> Ko Ngāti Tūwharetoa, ko Ngāti Raukawa hoki.
-> I whānau mai au ki Tauranga Moana, kei Te Rotorua-nui-a-Kahumatamomoe au e noho ana ināianei.
-> Ko Charles Russell tōku ingoa.
-> Ko te pāpā ahau o te kōtiro e noho mai nei, o Nova.
-
-*(I am of Aotea waka and its captain Turi, who landed at Rangitāwhi; of the bare mountain Taranaki, of Ngā Rauru, Ngāti Ruanui and Te Pakakohi, also Tūwharetoa and Raukawa. I was born in Tauranga Moana and now live in Rotorua. I am Charles Russell, father of the girl sitting here, Nova.)*
-
-### 7. Te take: ko Nova
-
-> Ko te take i haere mai ai mātou i tēnei ata, ko tāku tamāhine, ko Nova Russell.
->
-> I tōna pāpā, he uri ia nō Aotea waka, nō Taranaki, nō Ngā Rauru, nō Ngāti Ruanui, nō Te Pakakohi, nō Ngāti Tūwharetoa, nō Ngāti Raukawa.
->
-> Engari i tōna māmā, i tōna koroua, he uri ia nō Ngāi Te Rangi,
-> nō Rangiwaea, nō Matakana, [nō Ngāi Tūwhiwhia, nō Ngāti Tauaiti,]
-> ngā moutere e tū mai rā i tua atu o te wai.
->
-> He Paki tōna koroua i tōna whānautanga.
-> I whāngaitia ia e te whānau Tairi o Maungatautari,
-> nō Ngāti Korokī Kahukura, nō Waikato, nō Tainui waka.
-> Ko Maungatautari te maunga, ko Waikato te awa, ko Tainui te waka.
-> E rua ngā whānau, e rua ngā iwi, kotahi te koroua. Kei a Nova ēnei taonga e rua.
->
-> Nō reira, ehara ia i te manuhiri ki tēnei whenua.
-> Kua hoki mai ia ki tōna kāinga, ki raro i te maru o Mauao, ki te taha o Te Awanui,
-> ki te tirohanga atu ki ngā moutere o tōna koroua.
-> Kua hoki mai te mokopuna ki te iwi.
-
-*(The reason we have come this morning is my daughter, Nova Russell. Through her father she descends from Aotea waka and Taranaki. But through her mother and her koro she descends from Ngāi Te Rangi, from Rangiwaea and Matakana, [from Ngāi Tūwhiwhia and Ngāti Tauaiti,] the islands standing just across the water. Her koro was born a Paki. He was raised as a whāngai by the Tairi whānau of Maungatautari, of Ngāti Korokī Kahukura, of Waikato, of the Tainui waka. Two whānau, two iwi, one koro. Nova carries both treasures. So she is not a visitor to this land. She has come home, under the shelter of Mauao, beside Te Awanui, within sight of her koro's islands. The mokopuna has come back to the iwi.)*
-
-### 8. In English: the handing over
-
-Roimata, Ngāi Te Rangi, thank you for the welcome you have given our whānau this morning.
-
-I stand here wearing one hat only. Not Mātai Pacific, not the kiwifruit industry. Today I am a father.
-
-I was born in Tauranga Moana. I have spent most of my working life around this harbour. So it means a great deal to me that my eldest daughter begins this chapter of her life here, at the foot of Mauao, with the iwi of her mother and her koro. His islands, Rangiwaea and Matakana, sit just across the water from where we are standing. He was born a Paki and raised a Tairi, a whāngai of Ngāti Korokī Kahukura at Maungatautari. Nova carries Ngāi Te Rangi and Tainui in the one line, and she carries both with pride.
-
-I want to tell you what you are getting.
-
-Nova is hard working. She is organised, and she is loyal. She is also discreet, and I say that deliberately. An Executive Assistant holds two things for her leader: the door and the confidence. What comes across Roimata's desk stays with Roimata, and Nova understands that. She was raised to.
-
-She has been brought up to serve. In our whānau we were taught that mana is not something you claim. It is something other people see in how you carry yourself and how you treat them. She knows that the person at the front desk and the person in the chair's seat deserve the same care from her.
-
-She is also young, and she is still learning. So I ask three things of you.
-
-Manaakitia ia. Look after her.
-Akona ia. Teach her, and let her learn how this iwi does things, not how the last place did them.
-And where she gets it wrong, whakatikaina ia. Correct her. She can take it, and she will be better for it.
-
-In return I can promise you her best. Her loyalty, her effort, and her care for the people she works alongside.
-
-In my own work I hold to the whakataukī "Hutia te rito o te harakeke, kei hea te kōmako e kō?" If you pull out the centre shoot of the flax, where will the bellbird sing? Today I am planting a rito in your harakeke. The outer leaves, the kaumātua, the leaders, the kaimahi, are what protect it and let it grow. She is yours now, to shelter and to shape.
-
-Roimata, she is here to make your day lighter and your work stronger. Use her well.
-
-### 9. Te whakamutunga
-
-> Nō reira, e Roimata, e te rūnanga, e Ngāi Te Rangi,
-> kei a koutou tāku tamāhine.
-> Tiakina ia, poipoia ia, whakatikaina ia ina hē.
-> Nāku te rito, nā koutou te harakeke, mā tātou katoa e whakatipu.
->
-> Nāu te rourou, nāku te rourou, ka ora ai te iwi.
->
-> Nō reira, tēnā koutou, tēnā koutou, tēnā tātou katoa.
-
-*(So, Roimata, the rūnanga, Ngāi Te Rangi, my daughter is in your hands. Look after her, nurture her, correct her when she errs. Mine is the shoot, yours is the flax, together we will grow her. With your basket and my basket the people will thrive. Greetings to you all.)*
-
-**Then the waiata.**
-
----
-
-## Short version (about two and a half minutes)
-
-This one stands on its own. Tauparapara and īnoi in full, then a tight mihi, then the hand-over.
-
-### Tauparapara
-
-> Whakataka te hau ki te uru,
-> whakataka te hau ki te tonga.
-> Kia mākinakina ki uta,
-> kia mātaratara ki tai.
-> E hī ake ana te atakura,
-> he tio, he huka, he hau hū.
-> Tīhei mauri ora!
-
-### Īnoi
-
-> E te Matua nui i te rangi, tēnā koe.
-> Kia tau iho ngā manaakitanga ki runga ki tēnā, ki tēnā o tātou.
-> Ka īnoi tātou i runga i te Matua, i te Tama, i te Wairua Tapu,
-> ki ngā Anahera Tapu, ki te Māngai tautoko,
-> āianei, ake nei. Āe.
-
-### Mihi
+## Mihi
 
 > E Mauao, e tū mai nā, tēnā koe.
 > E Te Awanui, e Tauranga Moana, tēnā koe.
 > Rātou kua wheturangitia, haere, haere, haere atu rā.
 > Tātou te hunga ora, tēnā tātou.
 >
-> E Ngāi Te Rangi, e ngā uri o Te Rangihouhiri,
-> e Roimata, e ngā kaimahi o te rūnanga,
-> tēnā koutou i tō koutou karanga, i tō koutou manaaki i tēnei ata.
+> E te tangata whenua, e Ngāi Te Rangi, e ngā uri o Te Rangihouhiri,
+> e Roimata, e ngā kaimahi o te rūnanga, tēnā koutou.
+> He manuhiri mātou ki tō koutou whare i tēnei rā.
+> Tēnā koutou i tō koutou karanga, i tō koutou manaaki i a mātou.
 >
 > Ko Aotea te waka, ko Taranaki te maunga,
 > ko Ngā Rauru, ko Ngāti Ruanui, ko Te Pakakohi ngā iwi.
 > Ko Charles Russell ahau. Ko te pāpā ahau o Nova.
 >
 > I tōna pāpā, nō Aotea, nō Taranaki ia.
-> I tōna māmā, i tōna koroua, nō Ngāi Te Rangi ia,
-> nō Rangiwaea, nō Matakana, ngā moutere e tū mai rā i tua atu o te wai.
+> I tōna māmā, i tōna koroua, he hononga ōna ki a Ngāi Te Rangi,
+> ki Rangiwaea, ki Matakana, ngā moutere e tū mai rā i tua atu o te wai.
 > He Paki tōna koroua i tōna whānautanga,
 > i whāngaitia ia e te whānau Tairi o Maungatautari,
 > nō Ngāti Korokī Kahukura, nō Tainui waka.
-> Nō reira, ehara ia i te manuhiri. Kua hoki mai te mokopuna ki te kāinga.
+>
+> Nō reira, ka kawe mai mātou i te mokopuna ki a koutou.
+> Mā koutou ia e whakatau.
 
-*(Mauao, Te Awanui, greetings. Farewell to those who have passed; greetings to us the living. Ngāi Te Rangi, descendants of Te Rangihouhiri, Roimata, the staff of the rūnanga, thank you for your call and your care this morning. I am of Aotea and Taranaki. I am Charles Russell, Nova's father. Through me she is Aotea and Taranaki. Through her mother and her koro she is Ngāi Te Rangi, of Rangiwaea and Matakana, the islands across the water. Her koro was born a Paki and raised by the Tairi whānau of Maungatautari, Ngāti Korokī Kahukura, of Tainui waka. So she is no visitor. The mokopuna has come home.)*
+*(Mauao, Te Awanui, greetings. Farewell to those who have passed; greetings to us the living. Tangata whenua, Ngāi Te Rangi, descendants of Te Rangihouhiri, Roimata, staff of the rūnanga, greetings. We are manuhiri in your house today. Thank you for your call and your care of us. I am of Aotea and Taranaki. I am Charles Russell, Nova's father. Through me she is Aotea and Taranaki. Through her mother and her koro she has ties to Ngāi Te Rangi, to Rangiwaea and Matakana, the islands across the water. Her koro was born a Paki and raised by the Tairi whānau of Maungatautari, Ngāti Korokī Kahukura, of Tainui waka. So we bring the mokopuna to you. It is for you to settle her.)*
 
-### The hand-over
+## The hand-over
 
-Roimata, Ngāi Te Rangi, thank you for the welcome you have given our whānau.
+Roimata, Ngāi Te Rangi, thank you for the welcome you have given our whānau. We come to you today as manuhiri, and we are grateful to be received.
 
 Today I am not here for Mātai Pacific. Today I am a father.
 
-I was born in Tauranga Moana, and it means a great deal to me that my eldest daughter starts this chapter here, at the foot of Mauao, within sight of her koro's islands, with the iwi of her mother.
+I was born in Tauranga Moana, and it means a great deal to me that my eldest daughter starts this chapter here, at the foot of Mauao, within sight of her koro's islands. She carries that whakapapa. Whether she has earned her place here is for you to decide, and for her to show you.
 
 Let me tell you what you are getting. Nova is hard working, she is loyal, and she is discreet. An Executive Assistant holds the door and holds the confidence, and she understands both. She was raised to serve, and she was raised to treat the person at the front desk and the person in the chair's seat with the same care.
 
@@ -218,11 +72,11 @@ And where she gets it wrong, whakatikaina ia. Correct her. She will be better fo
 
 In return, you have her best. Her loyalty, her effort, and her care for the people beside her.
 
-Hutia te rito o te harakeke, kei hea te kōmako e kō? Today I plant a rito in your harakeke. The outer leaves protect it and let it grow. She is yours now, to shelter and to shape.
+Hutia te rito o te harakeke, kei hea te kōmako e kō? Today I bring a rito to your harakeke. The outer leaves protect it and let it grow. She is yours now, to shelter and to shape.
 
-### Whakamutunga
+## Whakamutunga
 
-> Nō reira, e Roimata, e Ngāi Te Rangi,
+> Nō reira, e te tangata whenua, e Roimata, e Ngāi Te Rangi,
 > kei a koutou tāku tamāhine.
 > Tiakina ia, poipoia ia, whakatikaina ia ina hē.
 > Nāku te rito, nā koutou te harakeke, mā tātou katoa e whakatipu.
@@ -232,15 +86,10 @@ Hutia te rito o te harakeke, kei hea te kōmako e kō? Today I plant a rito in y
 
 ---
 
-## Delivery notes
+## Before you speak
 
-- **Order.** The hosts speak first. You reply. If there is more than one speaker on your side, the father usually speaks last and does the handing over. Nova does not need to speak unless invited; a short "tēnā koutou, ka nui te mihi" from her after the waiata is enough.
-- **Stand still, speak slowly.** The reo sections are short on purpose. Pause after each line. The English carries the weight of the message, so do not rush it.
-- **The three asks** (manaakitia, akona, whakatikaina) are the heart of the speech. Look at Roimata when you say them.
-- **Kaumātua in the room.** If a kaumātua speaks for Ngāi Te Rangi before Roimata, add their name to section 5 and acknowledge them first.
-- **The īnoi in section 2.** I have written "ki ngā Anahera Tapu" in the plural, matching the usual Rātana formula. If you say it as "ki te Anahera Tapu", keep your own wording.
-- **The bracketed hapū in section 7.** Do not read the brackets out unless confirmed. "Nō Rangiwaea, nō Matakana" stands on its own, and people from those islands will know exactly who that means.
-- **Whāngai.** Saying "he Paki i tōna whānautanga, i whāngaitia e te whānau Tairi" honours both whānau. If anyone from the Paki or Tairi side is present, look at them when you say it.
-- **Waiata.** Pick something the whānau can all carry. "Purea Nei" (Hirini Melbourne) suits a new beginning. "Te Aroha" and "Tūtira Mai Ngā Iwi" are safe if numbers are small. If your whānau has a Taranaki waiata you know well, that is the stronger choice, since it reflects your side of the house.
-- **Koha.** Not usually expected at a workplace whakatau. If your whānau wishes to give one, a small envelope laid down after the waiata is fine.
-- **After the speeches.** Hongi or harirū down the line, then kai. Nova should stay with the hosts' side after the hongi; she belongs to them from that point.
+- **Names.** Roimata Ah Sam as Deputy Chief Executive is confirmed from Nova's employment agreement. If a kaumātua or the Chief Executive speaks for the iwi, acknowledge them by name before Roimata.
+- **The Paki name.** The speech says the koro was born a Paki and raised a Tairi, which honours both whānau. Check with Nova's mother that the whānau is happy to have the birth name spoken. If not, keep only the Tairi line.
+- **Spelling.** Confirm "Tairi".
+- **Waiata.** "Purea Nei" suits a new beginning. A Taranaki waiata the whānau knows well is the stronger choice, as it reflects your side of the house.
+- **Order.** Tangata whenua speak first. You reply. Nova does not need to speak unless invited. After the hongi she stays on the hosts' side; she belongs to them from that point.
